@@ -1,7 +1,7 @@
 ## Hi, this is Feng Xie 👋
 Currently studying for a master's degree at [NUDT](https://www.nudt.edu.cn/).
 
-😄 I like Music ｜ Fitness ｜ Travel ｜ Anime
+😄 I like Music / Fitness / Travel / Anime
 
 👯 About music, I like *Nicki Minaj*, *Doja Cat*, *Ariana Grande* and *Taylor Swift*.
 
